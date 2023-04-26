@@ -1,4 +1,0 @@
-gno
-sfgjo
-prgafb
-fagonr
